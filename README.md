@@ -1,0 +1,1 @@
+# Nensi-FItriyanti-09011182328113_SK3B_Praktikum-06_Sistem-Operasi
